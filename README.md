@@ -4,7 +4,7 @@
 
 claiderossete@hotmail.com
 
-![](https://media.tenor.com/GbTHWE_bE9kAAAAM/flashy-klau-streamer.gif)
+
 
 
 
